@@ -14,7 +14,7 @@ I specialize in crafting narrative-driven games that explore profound themes and
 
 ## 🎵 Music Production
 
-Beyond game development, I produce music that complements my storytelling. You can listen to my playlists on [SoundCloud](https://soundcloud.com/invidiousmind/sets/spotify) and connect with me on [Minds](https://www.minds.com/Invidiousmind/).
+Beyond game development, I produce music that complements my storytelling. You can listen to my playlists on [SoundCloud](https://soundcloud.com/invidiousmind/sets/spotify) and connect with me on [Instagram](https://www.instagram.com/invidiousmind/).
 
 ## 🚀 Skills & Interests
 
